@@ -1,1 +1,3 @@
 Favorite entertainer is Tom Hanks. While he ends up being the likeable everyguy, he is also believable as the lawyer who conducts a prisoner exchange in Bridge of Spies, an astronaut in The Right Stuff, the mentally challenged Alabaman in Forrest Gump, the Ivy League symbologist in The DaVinci Code and the toy cowboy in Toy Story. I appreiate his comfort with the variety. 
+
+Tom Hanks was born July 9, 1956.
